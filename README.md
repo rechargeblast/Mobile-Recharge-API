@@ -1,4 +1,4 @@
-1. Contact 9122009884 or Email: sales@rechargeblast.com For Recharge API
+1. Contact +91-8340412096 or Email: sales@rechargeblast.com For Recharge API
 
 2. Download Our API Documents
 
