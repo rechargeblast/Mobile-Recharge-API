@@ -8,4 +8,4 @@
 
 5. Our API Cloud Based
 
-6. If Any Isue Contact +91-8340412096 or Email: sales@rechargeblast.com For Recharge API Intigration
+6. If Any Isue Contact +91-9122009884 or Email: sales@rechargeblast.com For Recharge API Intigration
